@@ -1,4 +1,4 @@
-# Ask me anything!
+# Ask me anything! 🍺
 
 > "Ask me anything" significa "Pergunte-me qualquer coisa".
 
